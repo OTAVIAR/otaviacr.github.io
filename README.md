@@ -1,2 +1,0 @@
-# otaviacr.github.io
-Currículo
